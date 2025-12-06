@@ -1,4 +1,4 @@
-# Hoshimachi Suisei – デビュタントボール
+# Hoshimachi Suisei – デビュタントボール (Debyutantobōru)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
